@@ -1,1 +1,1 @@
-Firma y acepta
+Firma
